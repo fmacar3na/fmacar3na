@@ -1,4 +1,9 @@
-### Hi there 👋
+### Hey ya'all 👋
+
+Pronouns: She/Her 🤎
+Favorite Quote: Explore. Dream. Discover 🍀
+Interests: Travelling ✈️ Plants 🪴 Home Projects 🏠
+
 
 <!--
 **fmacar3na/fmacar3na** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
