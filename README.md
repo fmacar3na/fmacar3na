@@ -1,4 +1,4 @@
-### Hey ya'all 👋
+### Hey ya'll 👋
 
 Pronouns: She/Her 🤎
 Favorite Quote: Explore. Dream. Discover 🍀
